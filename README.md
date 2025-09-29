@@ -1,5 +1,5 @@
-# Extremamente-Injusto-
-Ninguem ia perceber!!!! 
+# Extremamente Injusto!
+_Ninguem ia perceber!!!!_
 
 ```
 
@@ -23,7 +23,7 @@ O mesmo triste e estrábico produto,
 Atramente a gemer a mágoa e o luto,
 Nas mais contrárias idiossincrasias.
 
-Ego Sum/Augusto dos Anjos/Parnaso de Alem Tumulo
+Ego Sum/Augusto dos Anjos/Parnaso de Além Túmulo
 ```
 
 Leia mais:  <br>
